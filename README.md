@@ -1,3 +1,3 @@
-#seal
+#seal-vester
 
-you are hacked c
+you are hacked sly
